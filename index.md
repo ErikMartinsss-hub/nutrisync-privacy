@@ -59,7 +59,7 @@ Você pode, a qualquer momento:
 
 Em caso de dúvidas sobre esta Política de Privacidade ou sobre seus dados, entre em contato:
 
-- E-mail: nutrisync.aplicativo@gmail.com
+- E-mail: **nutrisync.aplicativo@gmail.com**
 
  9. Alterações nesta política
 
